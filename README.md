@@ -1,4 +1,4 @@
-## Welcome to ~~~ Yael's GitHub Pages
+## Welcome to 🔥🦄 Yael's GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/programming-liftoff/hello-world/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
